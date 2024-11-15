@@ -1,6 +1,6 @@
 
 ## Website Link- 
-or 
+https://github.com/Vaishaligaur/Pixel-Health
 
 ##  Our Tagline 
 Where mental wellness meets innovative care.💙
